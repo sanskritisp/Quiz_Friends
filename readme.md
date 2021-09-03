@@ -1,1 +1,1 @@
-This is the quiz based on the different characters of one of the popular web seriesnamed FRIENDS. There are en question based on the character's life which you have to answer.
+This is the quiz based on the different characters of one of the popular web seriesnamed FRIENDS. There are ten question based on the character's life which you have to answer.
